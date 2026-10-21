@@ -20,3 +20,8 @@ Chess is an important part of your interests and activities.
 eirjtoirubu8rdtnotr
 ## Email.
 sakshmfndfjgmail.com
+## HOBBIES
+- chess
+- tennis
+- cricket
+- football
