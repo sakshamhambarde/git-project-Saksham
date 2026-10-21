@@ -18,3 +18,6 @@ Chess is an important part of your interests and activities.
 ## project
 -jkbbgdsuvngehb
 eirjtoirubu8rdtnotr
+## Social Links 
+-hi 
+-bye
